@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GAMJ810806MMCRNN05
+GAMJ810806MMCRNN05
